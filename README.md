@@ -30,5 +30,9 @@ yes, mostly i use AI for splitting the zip and making a merge and for fixing as 
 
 yes do whatever you want idgaf 
 
+BTW JOIN SLQNT'S DISCORD SERVER RIGHT HERE
+
+https://discord.gg/Eebv8NzcK
+
 
 
